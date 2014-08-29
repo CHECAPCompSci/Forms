@@ -5,7 +5,7 @@ All online forms can be found within this repository
 
 August 29th: 
 -------------------
-[Independent work and Exit Ticket](https://docs.google.com/forms/d/1XXVIz1GdFpo75r_frQdRbEnsjLXPNtvL2MbZAzU3AMs/viewform?usp=send_form "Independent work/Exit Ticket") 
+[Independent work and Homework](https://docs.google.com/forms/d/1XXVIz1GdFpo75r_frQdRbEnsjLXPNtvL2MbZAzU3AMs/viewform?usp=send_form "Independent work Homework") 
 
 
 August 28th:
